@@ -4,3 +4,5 @@
 “When we do the best we can, we never know what miracle is wrought in our life or the life of another.” — Helen Keller
 
 “Keep calm and carry on.” — Winston Churchill
+
+“The greatest pleasure of life is love.” — Euripides
